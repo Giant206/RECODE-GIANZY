@@ -12,6 +12,8 @@
 
 # SCRIPT REMAKE BOT WHATSAPP BY GIANZY🇮🇩👨‍💻
 
-Bot ini Hanya Di Remake Ulang, Jadi Jangan Salah Paham Bagi Pihak Lainnya🗿👍\n Untuk Run Bot WhatsApp Bisa Cari di Youtube\n
+Bot ini Hanya Di Remake Ulang, Jadi Jangan Salah Paham Bagi Pihak Lainnya🗿👍
+
+Untuk Run Bot WhatsApp Bisa Cari di Youtube▶️
 
 Jika Ingin Ditanya Atau Masalah Bisa Ke : https://wa.me/6285171648088
